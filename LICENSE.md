@@ -1,4 +1,4 @@
-
+NordPass for macOS ultimate Extension: firewall-protection & junk-file-cleanup offers the most advanced NordPass for macOS extension, with firewall-protection and
 
 
 
